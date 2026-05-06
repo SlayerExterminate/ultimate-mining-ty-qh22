@@ -1,4 +1,4 @@
-
+new Script for ultimate mining tycoon offers the most advanced ultimate mining tycoon Script, with infinite resources and esp. Perfect for dominating
 
 
 
